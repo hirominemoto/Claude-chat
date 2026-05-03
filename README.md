@@ -12,4 +12,4 @@
 
 ・link
 
-・Abbuversary
+・Anniversary
