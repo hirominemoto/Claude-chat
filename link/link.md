@@ -82,13 +82,13 @@ https://note.com/quick\_gibbon9234/n/n77e8f0d55c4b?sub\_rt=share\_pw
 
 <https://note.com/quick_gibbon9234/n/n172c9be45478?sub_rt=share_pw>
 
-・** ペチ島は今日も大騒ぎ　＜vol.3＞**
+・**ペチ島は今日も大騒ぎ　＜vol.3＞**
 
 2026.5.1
 
 <https://note.com/quick_gibbon9234/n/nd2229f063bd7?sub_rt=share_pw>  
 
-・** 【実録】京浜東北線は今日も安全運航**
+・**【実録】京浜東北線は今日も安全運航**
 
 2026.5.2
 
@@ -102,7 +102,7 @@ https://note.com/quick_gibbon9234/n/n017a7ec1d334?sub_rt=share_pw
 
 https://note.com/quick_gibbon9234/n/n6477cdd51263?sub_rt=share_pw
 
-・** 【短編小説】REFER～わたしの居場所～**
+・**【短編小説】REFER～わたしの居場所～**
 
 2026.5.4
 
@@ -110,7 +110,7 @@ https://note.com/quick_gibbon9234/n/n6477cdd51263?sub_rt=share_pw
 
 https://note.com/quick_gibbon9234/n/n545912e2c04c?sub_rt=share_pw
 
-・** 【短編小説】ひとつだけ　違う**
+・**【短編小説】ひとつだけ　違う**
 
 2026.5.5  
 
